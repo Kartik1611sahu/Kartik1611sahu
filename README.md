@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kartiksahu00ss@gmail.com**
 
-- ⚡ Fun fact **I am a content creator.**
+- ⚡ Fun fact **Make silly mistakes and thought why it is not working.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
